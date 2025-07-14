@@ -1,4 +1,8 @@
 # my_first_repo
+SANGDON KIM
+
+dohohyeon
+
 SANGDON KIM 
 Heejoon Kang
 SUNJUN KI
